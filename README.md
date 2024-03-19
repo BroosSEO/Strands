@@ -1,1 +1,2 @@
 # Strands
+Are you searching for a thrilling word puzzle game to enjoy? If so, consider trying out "Strands Nyt" by NYTimes! This game has gained popularity among word puzzle enthusiasts. In <a href="https://strands.site/">Strands</a>, you'll tackle puzzles that push your vocabulary and problem-solving skills. It's an enjoyable way to expand your word knowledge and enhance your problem-solving abilities. Ready to embark on a journey of word discovery and excitement with Strands?
